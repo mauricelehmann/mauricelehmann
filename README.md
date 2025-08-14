@@ -1,4 +1,7 @@
 ### Hi there 👋
+![Yeah ofc - Funny](https://github.com/user-attachments/assets/13fd0582-21f4-4c0e-b415-c618efa60c22)
+
+
 
 <!--
 **mauricelehmann/mauricelehmann** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
